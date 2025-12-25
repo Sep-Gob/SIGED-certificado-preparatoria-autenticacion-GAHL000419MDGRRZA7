@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-GAHL000419MDGRRZA7
+GAHL000419MDGRRZA7
